@@ -9,7 +9,7 @@
 I'm a freelance marketer and writer by trade. 
 I've been working in blockchain since 2016.
 I've helped more than 30 companies raise startup capital.
-My efforts have helped secure over $500m USD for my clients.
+My efforts have helped secure over $1.1b USD for my clients.
 
 I'm a father of two (and a dog)
 I like to play video games sometimes
